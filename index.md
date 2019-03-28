@@ -22,23 +22,23 @@
 
 ■ 2017/03-Up to now, Sichuan Assembly Building Industry Association (formerly Sichuan Building Metal Structure Association) Chengdu
 
-Deputy Secretary-General, in charge of steel plate, responsible for the work of the Special Committee on Steel Structure.
+  Deputy Secretary-General, in charge of steel plate, responsible for the work of the Special Committee on Steel Structure.
 
 ■ 2016/08 - Up to now, China MCC5 Group Co., Ltd. Chengdu
 
-As chief engineer and chief engineer of technical department, he is engaged in technical innovation and research and development of building steel structure.
+  As chief engineer and chief engineer of technical department, he is engaged in technical innovation and research and development of building steel structure.
 
 ■ 2016/03-2016/08 Sichuan BlueSky Grid Steel Structure Engineering Co., Ltd. Chengdu
 
-As chief engineer, responsible for technical line management, mainly engaged in steel structure project design, construction and other technical work.
+  As chief engineer, responsible for technical line management, mainly engaged in steel structure project design, construction and other technical work.
 
 ■ 2013/02-2016/03 Sichuan Gaobiao Construction Engineering Co., Ltd. Chengdu
 
-As Chief Engineer of Steel Structure Branch, responsible for technical line management, mainly engaged in large-span space structure project bidding, project implementation and other technical work.
+  As Chief Engineer of Steel Structure Branch, responsible for technical line management, mainly engaged in large-span space structure project bidding, project implementation and other technical work.
 
 ■ 2007/06-2013/02 Zhejiang Jinggong Steel Structure Group Co., Ltd. Wuhan & Shanghai
 
-Successive directors of structural design, technical support engineers and deputy managers of technical centers of Huazhong Business Department (Hubei Jinggong Steel Structure Co., Ltd.) are mainly engaged in structural design, bidding and construction scheme compilation of steel structure projects, simulation and analysis of construction process. Tender sales support and project implementation technical support.
+  Successive directors of structural design, technical support engineers and deputy managers of technical centers of Huazhong Business Department (Hubei Jinggong Steel Structure Co., Ltd.) are mainly engaged in structural design, bidding and construction scheme compilation of steel structure projects, simulation and analysis of construction process. Tender sales support and project implementation technical support.
 
 ## Education & Training
 
@@ -114,7 +114,7 @@ Successive directors of structural design, technical support engineers and deput
 
 ● A H-shaped steel frame high-strength housing unit ZL 2014 1 0585401.8 (ranked third)
 
-■ Detailed results information can be accessed to the China HowNet repository: http://papers.cnki.net/oshabc
+■ Detailed results information can be accessed to the CNKI repository: http://papers.cnki.net/oshabc
 
 
 ## Awards
