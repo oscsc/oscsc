@@ -52,15 +52,15 @@ Successive directors of structural design, technical support engineers and deput
 
 ■ Standard compilation: Participated in compiling 5 local standards in Sichuan Province.
 
-● Editor-in-chief of Technical Standards for High-rise Steel Structures in High Seismic fortification Intensity Zone of Sichuan Province;
+  ● Editor-in-chief of Technical Standards for High-rise Steel Structures in High Seismic fortification Intensity Zone of Sichuan Province;
 
-● Editor-in-chief of Sichuan Standard Atlas of Steel Structured Agricultural Housing (Assembled Steel Frame Structures);
+  ● Editor-in-chief of Sichuan Standard Atlas of Steel Structured Agricultural Housing (Assembled Steel Frame Structures);
 
-● Participation in the compilation of the "Sichuan Assembly Rural Housing Atlas", responsible for the compilation of the assembly light steel structure of the agricultural Housing part;
+  ● Participation in the compilation of the "Sichuan Assembly Rural Housing Atlas", responsible for the compilation of the assembly light steel structure of the agricultural Housing part;
 
-● Participation in the compilation of "Sichuan Assembly Public Toilets Atlas", responsible for the compilation of rural public toilets;
+  ● Participation in the compilation of "Sichuan Assembly Public Toilets Atlas", responsible for the compilation of rural public toilets;
 
-● Editor-in-chief of Sichuan Provincial Technical Standards for Assembly Gravity Foundation of Tower Cranes.
+  ● Editor-in-chief of Sichuan Provincial Technical Standards for Assembly Gravity Foundation of Tower Cranes.
 
 ■ Published academic papers: more than 10 professional and technical papers have been published.
 
