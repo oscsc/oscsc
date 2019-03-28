@@ -52,67 +52,67 @@ Successive directors of structural design, technical support engineers and deput
 
   ■ Standard compilation: Participated in compiling 5 local standards in Sichuan Province.
 
-    ● Editor-in-chief of Technical Standards for High-rise Steel Structures in High Seismic fortification Intensity Zone of Sichuan Province;
+   ● Editor-in-chief of Technical Standards for High-rise Steel Structures in High Seismic fortification Intensity Zone of Sichuan Province;
 
-    ● Editor-in-chief of Sichuan Standard Atlas of Steel Structured Agricultural Housing (Assembled Steel Frame Structures);
+   ● Editor-in-chief of Sichuan Standard Atlas of Steel Structured Agricultural Housing (Assembled Steel Frame Structures);
 
-    ● Participation in the compilation of the "Sichuan Assembly Rural Housing Atlas", responsible for the compilation of the assembly light steel structure of the agricultural Housing part;
+   ● Participation in the compilation of the "Sichuan Assembly Rural Housing Atlas", responsible for the compilation of the assembly light steel structure of the agricultural Housing part;
 
-    ● Participation in the compilation of "Sichuan Assembly Public Toilets Atlas", responsible for the compilation of rural public toilets;
+   ● Participation in the compilation of "Sichuan Assembly Public Toilets Atlas", responsible for the compilation of rural public toilets;
 
-    ● Editor-in-chief of Sichuan Provincial Technical Standards for Assembly Gravity Foundation of Tower Cranes.
+   ● Editor-in-chief of Sichuan Provincial Technical Standards for Assembly Gravity Foundation of Tower Cranes.
 
   ■ Published academic papers: more than 10 professional and technical papers have been published.
 
-    ● Construction Technology of Large Volume Complex Truss Structures has been hired by Steel Structures and is expected to be published in April 2019.
+   ● Construction Technology of Large Volume Complex Truss Structures has been hired by Steel Structures and is expected to be published in April 2019.
 
-    ● Zhou Yuan, Huang Shan, Dai Xiaoqiang, Du Jie. Key Technologies for Construction of Long-span Hyperbolic Circular Tube Truss [J]. Construction Mechanization. 2018 (06) PP. 43-46
+   ● Zhou Yuan, Huang Shan, Dai Xiaoqiang, Du Jie. Key Technologies for Construction of Long-span Hyperbolic Circular Tube Truss [J]. Construction Mechanization. 2018 (06) PP. 43-46
 
-    ● Zhang Wei, Zhou Yuan, Ding Zhisheng, Xie Guanmou. Suspension Bearing Capacity of Prestressed Space Steel Truss Structures [J]. Progress of Building Steel Structures. 2018 (03) PP. 104-109
+   ● Zhang Wei, Zhou Yuan, Ding Zhisheng, Xie Guanmou. Suspension Bearing Capacity of Prestressed Space Steel Truss Structures [J]. Progress of Building Steel Structures. 2018 (03) PP. 104-109
 
-    ● Zhou Yuan, Huang Shan, Fan Pengtao. Design of broken metal roof enclosure system with large slope [J]. China Building Waterproofing. 2018 (07) pp. 10-13
+   ● Zhou Yuan, Huang Shan, Fan Pengtao. Design of broken metal roof enclosure system with large slope [J]. China Building Waterproofing. 2018 (07) pp. 10-13
 
-    ● Fuhang, Zhou Yuan, Zhou Ruichao. Comprehensive Construction Technology of Steel Structures for Large Beam-string Door Wall [J]. Steel Structures. 2014 (12) PP. 77-82
+   ● Fuhang, Zhou Yuan, Zhou Ruichao. Comprehensive Construction Technology of Steel Structures for Large Beam-string Door Wall [J]. Steel Structures. 2014 (12) PP. 77-82
 
-    ● Huang Shan, Zhou Yuan, Tanyue. Structural optimization design of a textile mill [J]. Steel structure. 2014 (12) PP. 48-51
+   ● Huang Shan, Zhou Yuan, Tanyue. Structural optimization design of a textile mill [J]. Steel structure. 2014 (12) PP. 48-51
 
-    ● Huang Zhi, Zhou Yuan, Fu Hang, Yu Jijun. Construction technology of 4-machine lifting of large space truss [J]. Steel structure. 2014 (11) PP. 76-78
+   ● Huang Zhi, Zhou Yuan, Fu Hang, Yu Jijun. Construction technology of 4-machine lifting of large space truss [J]. Steel structure. 2014 (11) PP. 76-78
 
-    ● Du Yu, Zhou Yuan. Discussion on problems in the design process of light steel portal frame [J]. Sichuan Architecture. 2014 (03) PP. 207-208
+   ● Du Yu, Zhou Yuan. Discussion on problems in the design process of light steel portal frame [J]. Sichuan Architecture. 2014 (03) PP. 207-208
 
-    ● Du Yu, Zhou Yuan. The influence of vertical axis wind turbine on different structural forms under wind load [J]. Shanxi Architecture. 2014 (01) PP. 60-62
+   ● Du Yu, Zhou Yuan. The influence of vertical axis wind turbine on different structural forms under wind load [J]. Shanxi Architecture. 2014 (01) PP. 60-62
 
-    ● Zhou Yuan, Chen Yuquan, Li Zhenghua. Research on eccentric joints with clearance in steel pipe truss [J].Architectural Technology. 2012 (05) pp.12-15
+   ● Zhou Yuan, Chen Yuquan, Li Zhenghua. Research on eccentric joints with clearance in steel pipe truss [J].Architectural Technology. 2012 (05) pp.12-15
 
-    ● Li Zhenghua, Qiu Xiaojun, Zhou Yuan, Sun Feng. Temporary Support Unloading Construction Technology for Large Cantilever Structures [J]. Progress of Building Steel Structures. 2012 (05) PP. 59-64
+   ● Li Zhenghua, Qiu Xiaojun, Zhou Yuan, Sun Feng. Temporary Support Unloading Construction Technology for Large Cantilever Structures [J]. Progress of Building Steel Structures. 2012 (05) PP. 59-64
 
-    ● Tong Linlang, Zhou Yuan, Yu Jijun, Huang Xian. Unsupported Construction Technology for Large Cantilever Steel Structures [A]. Papers of the Fourth National Steel Structural Engineering Technology Exchange [C]. 2012
+   ● Tong Linlang, Zhou Yuan, Yu Jijun, Huang Xian. Unsupported Construction Technology for Large Cantilever Steel Structures [A]. Papers of the Fourth National Steel Structural Engineering Technology Exchange [C]. 2012
 
-    ● Zhou Yuan, Yu Jijun. Discussion on Rational Design of Truss Structures [A]. Paper Collection of the Fourth National Steel Structural Engineering Technology Exchange [C]. 2012
+   ● Zhou Yuan, Yu Jijun. Discussion on Rational Design of Truss Structures [A]. Paper Collection of the Fourth National Steel Structural Engineering Technology Exchange [C]. 2012
 
   ■ Patents granted: 11 patents authorized for invention have been granted.
 
-    ● A finger structure of suspended track beam and its construction method ZL 2017 0266671.6 (ranked first)
+   ● A finger structure of suspended track beam and its construction method ZL 2017 0266671.6 (ranked first)
 
-    ● Assembled suspended monorail track beam and its processing technology ZL 2017 0183056.9 (ranked first)
+   ● Assembled suspended monorail track beam and its processing technology ZL 2017 0183056.9 (ranked first)
 
-    ● Composite suspended monorail track beam and its processing technology ZL 2017 0182539.7 (ranked first)
+   ● Composite suspended monorail track beam and its processing technology ZL 2017 0182539.7 (ranked first)
 
-    ● A combined integrated box room ZL 2014 1 0248566.6 (ranked first)
+   ● A combined integrated box room ZL 2014 1 0248566.6 (ranked first)
 
-    ● A kind of assembly road ZL 2013 10565024.7 (ranked second)
+   ● A kind of assembly road ZL 2013 10565024.7 (ranked second)
 
-    ● A steel structure canopy and its construction method ZL 2012 1 0274 197.9 (ranked second)
+   ● A steel structure canopy and its construction method ZL 2012 1 0274 197.9 (ranked second)
 
-    ● A building with concrete steel columns ZL 2014 10585401.8 (ranked third)
+   ● A building with concrete steel columns ZL 2014 10585401.8 (ranked third)
 
-    ● A High Strength Grid Firewall Panel ZL 2014 10585172.X (ranked third)
+   ● A High Strength Grid Firewall Panel ZL 2014 10585172.X (ranked third)
 
-    ● A flame-retardant polyester-ethylene wallboard composite building structure ZL 2014 1 0585189.5 (ranked third)
+   ● A flame-retardant polyester-ethylene wallboard composite building structure ZL 2014 1 0585189.5 (ranked third)
 
-    ● A kind of assembled simple housing frame ZL 2014 10585667.2 (ranked third)
+   ● A kind of assembled simple housing frame ZL 2014 10585667.2 (ranked third)
 
-    ● A H-shaped steel frame high-strength housing unit ZL 2014 1 0585401.8 (ranked third)
+   ● A H-shaped steel frame high-strength housing unit ZL 2014 1 0585401.8 (ranked third)
 
   ■ Detailed results information can be accessed to the China HowNet repository: http://papers.cnki.net/oshabc
 
